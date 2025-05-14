@@ -19,7 +19,7 @@ amadeu-895b5b277" target="_blank">
 
 ### 𝚆𝚑𝚊𝚝 𝙸 𝚞𝚜𝚎 𝚍𝚊𝚒𝚕𝚢...
 
-javascript • html • css • tailwind • typescript • react.js • node.js • php • mysql • postgreSQL
+`javascript` • `typescript` • `html` • `css` • `tailwind` • `react.js` • `node.js` • `php` • `mysql` • `postgreSQL`
 
 ###
 
