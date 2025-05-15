@@ -31,6 +31,6 @@ amadeu-895b5b277" target="_blank">
 
 ### 𝙳𝚘𝚗'𝚝 𝚋𝚎 𝚜𝚑𝚢!
 
-𝙸 𝚕𝚘𝚟𝚎 𝚕𝚎𝚊𝚛𝚗𝚒𝚗𝚐 𝚏𝚛𝚘𝚖 𝚘𝚝𝚑𝚎𝚛𝚜, 𝚜𝚑𝚊𝚛𝚒𝚗𝚐 𝚒𝚍𝚎𝚊𝚜, 𝚊𝚗𝚍 𝚠𝚘𝚛𝚔𝚒𝚗𝚐 𝚘𝚗 𝚌𝚘𝚘𝚕 𝚙𝚛𝚘𝚓𝚎𝚌𝚝𝚜. 𝙵𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚛𝚎𝚊𝚌𝚑 𝚘𝚞𝚝 – 𝙸'𝚍 𝚕𝚘𝚟𝚎 𝚝𝚘 𝚌𝚑𝚊𝚝!
+I love learning from others, sharing ideas, and working on innovative projects. If you'd like to collaborate, feel free to reach out — I'd love to chat!
 
 ###
