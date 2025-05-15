@@ -15,7 +15,7 @@ amadeu-895b5b277" target="_blank">
   </a>
 </div>
 
-<img align="left" height="110" src="https://i.giphy.com/ES4Vcv8zWfIt2.webp">
+<img align="left" height="110" src="https://media.tenor.com/LtF6lgB8FdsAAAAm/mochi-peach.webp">
 
 ### 𝚆𝚑𝚊𝚝 𝙸 𝚞𝚜𝚎 𝚍𝚊𝚒𝚕𝚢...
 
