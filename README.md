@@ -16,7 +16,7 @@ amadeu-895b5b277" target="_blank">
 </div>
 
 
-<img align="left" height="100" src="https://media.tenor.com/dHk-LfzHrtwAAAAm/linux-computer.webp">
+<img align="left" height="105" src="https://media.tenor.com/dHk-LfzHrtwAAAAm/linux-computer.webp">
 
 ### 𝚆𝚑𝚊𝚝 𝙸 𝚞𝚜𝚎 𝚍𝚊𝚒𝚕𝚢...
 
